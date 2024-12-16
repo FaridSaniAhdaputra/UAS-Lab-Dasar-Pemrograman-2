@@ -4,6 +4,6 @@ Nama Kelompok : Kelompok Elgato 😼💥
 Anggota : 1. 241401076 - Yasmin Assyifa
           2. 241401127 - Farid Sani Ahdaputra
           
-Link Yt :
+Link Yt : https://youtu.be/Yd1lcQio-Dw
 
 Link Google Drive : https://drive.google.com/file/d/1RbC237cjRFofXIoLWpbri6Wk_85j1P4A/view?usp=sharing
